@@ -1,6 +1,6 @@
 # Dear President Trump,
 
-We need help. America is hurting and so is the rest of the world. We want need you succeed, and yet you are currently failing us.
+We need help. America is hurting and so is the rest of the world. We want and need you to succeed, and yet you are currently failing us.
 
 What does success look like? I think the first measure of success is that, based on the work you’ve been putting in, America as a nation is better off.
 
